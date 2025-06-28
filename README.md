@@ -1,6 +1,6 @@
 # Godetia机场地址
 
-最新地址：[ssltd.xyz](https://ssltd.xyz/#/register?code=hyEC8Sou)
+最新地址：[ssltd.xyz](https://ssltd.xyz/#/register?code=6fTCmXud)
 
 ## 简介
 
